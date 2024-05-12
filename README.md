@@ -1,0 +1,1 @@
+# To-activate-Windows-10-and-11-follow-the-steps.
